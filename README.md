@@ -4,4 +4,4 @@
 Наши преимущества:
 1. Высокая точность поиска
 2. Высокая скорость поиска
-3. Низкая цена dfdfdfdddfdfkdkdkdnnnjjsjjs
+3. Низкая цена dfdfdfdddfdfkdkdkdnnnjjsjjssss
